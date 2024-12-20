@@ -1,2 +1,0 @@
-# Madden-Industries
-content page
